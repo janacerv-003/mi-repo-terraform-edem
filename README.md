@@ -1,1 +1,1 @@
-este repo es mio
+Este repo es de Jana
